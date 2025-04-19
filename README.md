@@ -1,1 +1,1 @@
-Conheça meu perfil/ortifólio atraves do projeto LandingPage.
+Conheça meu perfil/portifólio atraves do projeto LandingPage.
